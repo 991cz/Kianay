@@ -2,7 +2,7 @@
 - 👀 I’m interested in Gaming, and codding
 - 🌱 I’m currently learning Python
 - 💞️ I’m not looking any collab for the moment   
-- 📫 How to reach me Kianay#0999 / bermaouinayle@gmail.com
+- 📫 How to reach me C"/#9999 / bermaouinayle@gmail.com
 
 <!---
 Kianay/Kianay is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
